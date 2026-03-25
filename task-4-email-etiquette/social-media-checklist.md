@@ -1,4 +1,5 @@
 Responsible Social Media Use – Checklist
+
  Do's
  
 1.)Think before posting — Make sure your content is respectful and appropriate.
